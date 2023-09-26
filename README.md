@@ -7,4 +7,4 @@
 Being an ECE student in my undergrad in VIT, I am fortunate to be a part of finest techincal community and understood the core of electronics. It is then I realised my interest in computers and the real-time technology where Electronics and Computers are both an integral part and started learning programming languages and cloud technologies
 
 ## Favorite Meme
-![Be Smart](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.entrepreneur.com%2Fscience-technology%2Fhow-to-use-memes-to-attract-more-attention-online%2F315895&psig=AOvVaw2HKCkVGRrvBNcQBEWlkEtf&ust=1695834768404000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCLjvtr7dx4EDFQAAAAAdAAAAABAE)
+![Thug Life](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSfFgEs4O7l032w30BYzjcXMlQ2OzuBRGmOIA&usqp=CAU)
